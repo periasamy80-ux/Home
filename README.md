@@ -39,3 +39,31 @@ The Library strives to provide accessible learning opportunities for students fr
 
 Library Motto:
 “Read • Learn • Explore • Grow”
+Announcements
+New books and reference materials are available in the library.
+Students are encouraged to make regular use of the Library Reading Hall.
+Competitive Examination Section materials are available for student use.
+Previous University Examination Question Papers are available for reference.
+Students may access free e-books, e-journals, and open educational resources through the Digital Resources Section.
+Library orientation and user-awareness programmes will be conducted for students.
+Students are requested to return borrowed books on or before the due date.
+Important scholarship, higher education, career, and competitive examination notifications will be displayed regularly.
+
+Library Highlights
+📚 Textbooks and Reference Books
+📖 Competitive Examination Section
+📰 Newspapers, Journals and Magazines
+💻 Digital Learning Resources
+🌐 Free E-books and E-journals
+🎓 Previous University Question Papers
+📑 Faculty and Student Publications
+📘 Student Project Reports
+🏛️ Institutional Repository
+🎁 Donated Books Collection
+📚 Back Volumes Section
+💿 CD/DVD and Multimedia Collection
+🔍 Online Public Access Catalogue (OPAC)
+👩‍🎓 Student Reading and Learning Support
+🧑‍🏫 Faculty Teaching and Research Support
+🌱 Career Guidance and Higher Education Resources
+♿ User-friendly and inclusive library services
